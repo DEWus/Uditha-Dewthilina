@@ -27,9 +27,9 @@ I'm a passionate Tech Enthusiast, Web Developer, and Content Creator with a wide
 ---
 
 ### 🌐 Connect With Me
-- 📧 **Email:** your-email@example.com
-- 💼 **LinkedIn:** [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
-- 📸 **Portfolio / Photography:** [Link to your photography/portfolio]
+- 📧 **Email:** your-Sithuuu2003@gmail.com
+- 💼 **LinkedIn:** [www.linkedin.com/in/uditha-dewthilina)
+- 📸 **Portfolio / Photography:**
 
 ---
 ⭐️ *“Turning ideas into reality through code and creativity.”*
